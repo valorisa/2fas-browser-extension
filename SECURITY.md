@@ -18,7 +18,7 @@ You should expect a response within 72 hours. If you don't receive a confirmatio
 
 ## Communication Language
 
-We prefer all communications to be in English.
+Please, we prefer all communications to be in English.
 
 ## Policy
 
